@@ -1,4 +1,10 @@
-### How To Get Fluent In English In 5 Days
+
+
+**5Ws**
+
+When, What, Where, Why, Who.
+
+### 5 Days
 
 #### Day1
 
@@ -29,3 +35,23 @@
 **Step1**, create 5 questions about the topic.
 
 **Step2**, preview 4 days information and see connections between them.
+
+### 3 Steps
+
+**E + D + Q = Experience + Details + Question**
+
+### Likes and Dislikes
+
+one bit = at all (negative)
+
+keep abreast of = to be aware of
+
+from scratch = with no recipe
+
+**Themes: One, Two, Seven**
+
+**One** means like or dislike.
+
+**Two** means two sentences. One for general, another for detail.
+
+**Seven** means, a number of next reasons and supports. Then one reason and one support, one reason and one support.
